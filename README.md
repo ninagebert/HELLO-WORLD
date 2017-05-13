@@ -1,2 +1,3 @@
 # HELLO-WORLD
 JUST ANOTHER REPOSITORY
+I'm new at coding, I'm learning now to help a family member with a dying wish and to help build my father-in-laws website on wordpress.I have 4 kids,one going to college this year and one next year so if I could learn something that could help me increase my income, that would be great. I work second shift at GE, but I'm on dissability because I've lost 3 family members just this year and for some reason out of the blue got depression. I've never felt this but I respect people who've suffered through it or is still suffering. I'm devoted, honest and creative.
